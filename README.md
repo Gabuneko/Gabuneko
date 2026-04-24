@@ -8,5 +8,5 @@
 
 💻 Always interested in new technologies!</br>
 🚀 Passionate about programming and open-source tools.</br>
-🍡 I spend my free time watching anime 🎌, playing games 🎮 and reading books 📖.</br>
-✨ Check out some of my work in the pinned section below!
+🎌 I love anime and Japanese culture. </br>
+🎮 Playing games and reading books are some of my other hobbies.</br>
